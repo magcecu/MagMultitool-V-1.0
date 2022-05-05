@@ -5,7 +5,7 @@ A good thing if you are begginer and intrested in our job
 Everybody can use it. I think its simple enough. There are instructions in if you dont know how to open it
 Please use it smart!
 # Support
-You can help me do more project like this or talk to us if you want.
+You can help me do more project like this or talk to us if you want.                                                 
 Paypal:
 https://www.paypal.me/ivanedavai
 Discord Surver:
